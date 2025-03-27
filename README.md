@@ -1,5 +1,5 @@
-- 👋 Hi, I’m du
-- 👀 I’m interested in game
+- 👋 Hi, I’m duweijia
+- 👀 I’m interested in daydream
 - 🌱 I’m currently learning big date
 - 📫 How to reach me :duweijia888@email.com
 
